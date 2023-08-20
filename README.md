@@ -5,7 +5,7 @@ I am a final year student majoring in **Informatics Engineering** at **Riau Univ
 
 🌱 I am very interested in the world of data and because of that I want to become a data analyst, data scientist, to machine learning engineer or anything related to data.
 
-📫 If you are interested in getting to know me , Let's connect with my [Linkedin](https://www.linkedin.com/in/nadiraalifia/) account. I will happy when i get new friends.
+📫 If you are interested in getting to know me , Let's connect with my [Linkedin](https://www.linkedin.com/in/nadiraalifia/) account. I will be happy when i get new friends.
 
 <p align="left">
 <a href="https://github.com/Naalfioiflaan">
